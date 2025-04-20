@@ -1,4 +1,4 @@
-Thank you for downloading Vanilla but better modpack!
+Thank you for downloading Vanilla Extra Features modpack!
 
 This modpack doesn't add any blocks, mobs or dimensions, just more options and performance enhancing!
 
